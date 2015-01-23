@@ -1,1 +1,3 @@
-my name is jordyn j
+
+jordyn is awesome
+my name is jordyn
